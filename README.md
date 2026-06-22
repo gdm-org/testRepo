@@ -14,4 +14,4 @@ SoftwareOne
 6Z9m6TLl5s70SLnLd7aRHgXqxcZjbkYbw4AEKVi     9H3nip4Y6U1jMJQQJ99CDACAAAAAAAAAAAAASAZDO1epE
 
 
-modifica del 22/6/2026 - seconda modifica
+modifica del 22/6/2026 - seconda modifica fatta da Lorenzo Barbieri
